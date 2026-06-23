@@ -1,1 +1,0 @@
-# jaysonwcs.github.io
